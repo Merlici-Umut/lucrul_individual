@@ -1,0 +1,1 @@
+# lucrul_individual
